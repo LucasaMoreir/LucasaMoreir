@@ -14,8 +14,8 @@ Estou ansioso para contribuir com projetos empolgantes e aprender com profission
 
 ## Contato
 
-📧 Email: lucas.amoreira@souunit.com.br
-📞 telefone: 81 997624446
-🌐 linkedin: https://www.linkedin.com/in/lucas-andrade-moreira-da-silva-51a121292/
+- 📧 Email: lucas.amoreira@souunit.com.br
+- 📞 telefone: 81 997624446
+- 🌐 linkedin: https://www.linkedin.com/in/lucas-andrade-moreira-da-silva-51a121292/
 
 Vamos nos conectar e criar coisas incríveis juntos!
